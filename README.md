@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lokesh(Lokesh Chowdary)
+- 👋 Hi, I’m Lokesh chilukuri(Lokesh Chowdary)
 - 👀 I’m interested in ...AIML
 - 🌱 I’m currently learning ...AI
 
